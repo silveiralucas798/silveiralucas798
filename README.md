@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @silveiralucas798
+- 👀 I'm interested in learning to program like a professional and advancing my career
+- 🌱 I’m currently learning Software Engineering
+- 💞️ I'm looking to collaborate with the community and learn as well
+- 📫 How to reach me, via email: silveiralucas798@gmail.com
